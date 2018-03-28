@@ -7,7 +7,7 @@ Muhammad Taufiq Hidayat > presidendjakarta@gmail.com
 
 Sahrul Rizal            >
 
-Atrisa Endya            > atrisaendya@gmail.com
+Atrisa Endya            > femalecod3@gmail.com
 
 Hera Karmila            >
 
