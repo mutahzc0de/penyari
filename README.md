@@ -5,7 +5,7 @@ Contributor :
 
 Muhammad Taufiq Hidayat > presidendjakarta@gmail.com
 
-Sahrul Rizal            >
+Sahrul Rizal            > sahrulrizal22@gmail.com
 
 Atrisa Endya            > femalecod3@gmail.com
 
