@@ -12,4 +12,4 @@ Atrisa Endya            > femalecod3@gmail.com
 Hera Karmila            >
 
 
-@copyright 2018, M.A.S.H
+@copyright 2018, M.A.S.H (MASHAALLAH)
