@@ -9,7 +9,7 @@ Sahrul Rizal            > sahrulrizal22@gmail.com
 
 Atrisa Endya            > femalecod3@gmail.com
 
-Hera Karmila            >
+Rizky Ramadhani         >
 
 
-@copyright 2018, M.A.S.H (MASHAALLAH)
+@copyright 2018, M.A.R.S
